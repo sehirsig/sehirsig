@@ -1,3 +1,3 @@
-### Hi there 👋
+### Hi 👋
 
-Mal schauen wies läuft :).
+:)
